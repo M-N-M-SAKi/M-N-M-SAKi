@@ -1,5 +1,5 @@
 # 💫 About Me
-I am an Intermediate Level programmer;
+I am an Intermediate Level programmer ):
 
 
 ## 🌐 Socials
